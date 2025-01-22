@@ -2,9 +2,7 @@
 
 Xin chào quý độc giả, mình là anh J97, hay còn gọi là anh Trịnh Trần Phương Tuấn xD
 
-Hôm nay mình sẽ giới thiệu cho mọi người cách bỏ con thông qua AI nha :>>
-
-Cũng đừng quên ghé website này của mình để được nhận quà nha: https://sites.google.com/view/daycon-exe/
+Hôm nay mình sẽ giới thiệu cho mọi người cách bỏ con nha :>>
 
 **Làm ca sĩ nè**
 
